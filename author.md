@@ -1,1 +1,0 @@
-Author: En-Hsuan Lu
